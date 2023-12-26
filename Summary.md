@@ -1,0 +1,1 @@
+Collaborating with external contributors on feature development projects can unlock new perspectives, accelerate innovation, and lead to the creation of high-quality features. By following the outlines, organizations can build strong partnerships and harness the collective interlligence of a diverse and global community to achieve project success.
